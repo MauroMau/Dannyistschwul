@@ -1,3 +1,3 @@
 # Dannyistschwul
 
-https://mauromau.github.io/Dannyistschwul
+https://mauromau.github.io/dannyistschwul
